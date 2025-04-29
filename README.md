@@ -1,5 +1,5 @@
 ![IMG_1505](https://github.com/user-attachments/assets/c703a7e2-4e22-4ecc-a919-e7fc335fb3c0)
-  !!pfp by nonemissing on newgrounds!!
+
 
 
 
