@@ -1,7 +1,7 @@
 ![IMG_1505](https://github.com/user-attachments/assets/c703a7e2-4e22-4ecc-a919-e7fc335fb3c0)
 
 
-
+i might follow you if i find your profile or you very pretty cool anyways
 
 <!--
 **TOXICGASLEAK/TOXICGASLEAK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
