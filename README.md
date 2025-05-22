@@ -5,6 +5,7 @@ i might follow you if i find your profile or you very pretty cool anyways
 
 ![IMG_1883](https://github.com/user-attachments/assets/064934e4-b3f6-46b4-9d35-267179e34c0d)
 YEEEP feel free to compliment me, even if my name has dni or dniuf compliment me freelyyyy :)
+im mostly dniuf please respect my boundaries
 <!--
 **TOXICGASLEAK/TOXICGASLEAK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
