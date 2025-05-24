@@ -2,12 +2,13 @@
 
 
 i might follow you if i find your profile or you very pretty cool anyways
+![316 Sem Título_20250524035233](https://github.com/user-attachments/assets/48c83844-3a0b-4c2c-a541-3745a8cb7af8)
 
-![IMG_1883](https://github.com/user-attachments/assets/064934e4-b3f6-46b4-9d35-267179e34c0d)
 YEEEP feel free to compliment me, even if my name has dni or dniuf compliment me freelyyyy :)
 im mostly dniuf please respect my boundaries
-![IMG_2179](https://github.com/user-attachments/assets/c088fa9a-4a35-429e-b046-17c5729f2919)
-c+h not encouraged, feel free to c+h if youre one of my friends.
+![316 Sem Título_20250524035151](https://github.com/user-attachments/assets/3824d004-1821-4f26-a2bc-8466809c8544)
+
+c+h *NOT* encouraged, feel free to c+h if youre one of my friends.
 <!--
 **TOXICGASLEAK/TOXICGASLEAK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
