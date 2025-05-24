@@ -9,6 +9,8 @@ im mostly dniuf please respect my boundaries
 ![316 Sem Título_20250524035151](https://github.com/user-attachments/assets/3824d004-1821-4f26-a2bc-8466809c8544)
 
 c+h *NOT* encouraged, feel free to c+h if youre one of my friends.
+![316 Sem Título_20250524035542](https://github.com/user-attachments/assets/30c491cd-b796-4a89-9b53-df9aa2fd79fa)
+for fucks sake check the fucking strawpage i cant do this anymroe
 <!--
 **TOXICGASLEAK/TOXICGASLEAK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
