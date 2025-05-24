@@ -1,7 +1,6 @@
 ![IMG_1505](https://github.com/user-attachments/assets/c703a7e2-4e22-4ecc-a919-e7fc335fb3c0)
 
-‎ ‎ ‎ ‎ ‎ ‎'' bruises on my neck ''
-
+‎ ‎ ‎ ‎ ‎
 i might follow you if i find your profile or you very pretty cool anyways
 ![316 Sem Título_20250524035233](https://github.com/user-attachments/assets/48c83844-3a0b-4c2c-a541-3745a8cb7af8)
 
