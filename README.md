@@ -1,4 +1,4 @@
-![IMG_1505](https://github.com/user-attachments/assets/c703a7e2-4e22-4ecc-a919-e7fc335fb3c0)
+![318 Sem Título_20250524122200](https://github.com/user-attachments/assets/3a2a2b1b-21bc-4b9d-8529-fe9cbcf7e0c0)
 
 ‎ ‎ ‎ ‎ ‎
 i might follow you if i find your profile or you very pretty cool anyways
