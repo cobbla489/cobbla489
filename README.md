@@ -1,2 +1,2 @@
-![IMG_2279](https://github.com/user-attachments/assets/c5ff59a7-e7c3-4e8d-a61b-c059e886c73d)
-
+![2d72926ebd5e17d497e4f501cbaf91e1](https://github.com/user-attachments/assets/27f35646-d504-401b-b648-882fa4fe886a)
+you all make me so tired i wanna kill myself
