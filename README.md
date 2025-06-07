@@ -1,2 +1,1 @@
-![2d72926ebd5e17d497e4f501cbaf91e1](https://github.com/user-attachments/assets/27f35646-d504-401b-b648-882fa4fe886a)
-you all make me so tired i wanna kill myself
+![137_Sem_Titulo_20250605223037](https://github.com/user-attachments/assets/8442a06e-cdf4-4c5c-aed0-39963fc7c245)
