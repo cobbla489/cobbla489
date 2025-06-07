@@ -1,2 +1,1 @@
-![IMG_2494](https://github.com/user-attachments/assets/490ad828-35ee-4513-8db2-a8386d8b31f1)
-NO LITTLE COBBLA
+![d07f35208e43cce8825796abf7eb7f11](https://github.com/user-attachments/assets/7cc52df8-ff58-4e48-b8b2-819ef317b7bc)
