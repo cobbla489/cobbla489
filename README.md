@@ -1,5 +1,2 @@
-![IMG_2583](https://github.com/user-attachments/assets/ee5f8871-3342-428e-9f32-a834eb634c0b)
-"a pyscho kitty" on patreon dni 
-u pmo alot
-![IMG_2631](https://github.com/user-attachments/assets/569942a4-e8fa-48be-ac2b-a5ce6edac736)
-what friends
+![2d4f458fd1d44ef062f108ec13a0ce6d](https://github.com/user-attachments/assets/c8a986cb-5e72-4a52-b70e-42dccc5c59a6)
+
