@@ -1,4 +1,2 @@
-![IMG_1505](https://github.com/user-attachments/assets/687e5f03-61a3-404f-83c7-77f6d59c1dcc)
-token noob main lvl 100 flex flexes flex flexes
-
-
+![675_Sem_Titulo_20250621184318](https://github.com/user-attachments/assets/716b48ab-5a51-40b6-8a0e-57b07acc914d)
+creds my beautiful husband
