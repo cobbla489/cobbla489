@@ -1,2 +1,2 @@
-![IMG_3312](https://github.com/user-attachments/assets/5eb19848-ae61-4548-8ca8-2c767246147c)
-leave me ALONE AWHATTHR HEELLL OML ????????| 
+![IMG_3311](https://github.com/user-attachments/assets/85cbd9df-7c63-42db-a570-782313d001b0)
+
