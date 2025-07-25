@@ -2,7 +2,6 @@
 ‎ 
 <img width="734" height="293" alt="502 Sem Título_20250725185308" src="https://github.com/user-attachments/assets/434826ab-fb17-4485-a66a-4a848a72dc7c" />
 ‎ ‎ 
-
-‎‎ ‎ ୨ৎ‎ how does thsi shit work veo
+‎ how does thsi shit work veo
 
 
