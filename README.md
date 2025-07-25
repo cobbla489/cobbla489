@@ -1,2 +1,3 @@
+<img width="1422" height="204" alt="IMG_3839" src="https://github.com/user-attachments/assets/525974bd-345b-4268-9879-a12ee652dd56" />
+how does this shit work vro
 
-![IMG_3313](https://github.com/user-attachments/assets/263bbff8-afdd-4f4c-85d8-a3e4c568106a)
