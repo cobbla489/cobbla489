@@ -3,5 +3,4 @@
 ## how thsi shit works bro
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
-if i ever come up to you im lonely as fuck or i might not be playing ponytown because i dont feel like playing the game anymore
-
+taking a break from pt. im not ok
