@@ -3,4 +3,4 @@
 ## how thsi shit works bro
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
-my feet is so coooolddd
+22:19[evil brandon] log1 thats not you! LOL? i hope you STAY STUCK THERE and dont pwn anyone LOL so boring
