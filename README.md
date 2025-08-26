@@ -6,4 +6,4 @@
 22:19[evil brandon] log1 thats not you! LOL? i hope you STAY STUCK THERE and dont pwn anyone LOL so boring
 
 
-im going to give up
+prob inative on pt
