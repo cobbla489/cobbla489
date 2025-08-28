@@ -6,4 +6,6 @@
 22:19[evil brandon] log1 thats not you! LOL? i hope you STAY STUCK THERE and dont pwn anyone LOL so boring
 
 
-prob inative on pt
+prob inactive on pt
+
+idm spam following 
