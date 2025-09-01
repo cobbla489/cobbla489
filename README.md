@@ -8,4 +8,4 @@
 
 prob inactive on pt
 
-idm spam following 
+go ahead and spam follow me idgaf honestly
