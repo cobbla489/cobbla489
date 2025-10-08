@@ -1,2 +1,2 @@
-<img width="1280" height="1280" alt="748 Sem Título_20251007211010" src="https://github.com/user-attachments/assets/fe52948b-ee37-481f-8fc1-94c09a58a7d1" />
+<img width="1467" height="1000" alt="750 Sem Título_20251007211135" src="https://github.com/user-attachments/assets/90a834f4-d007-4087-ad8b-16e79fce15bb" />
 
